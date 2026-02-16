@@ -1,4 +1,6 @@
 # Jimu Kumar Roy (He/Him)
+![1748167578942](https://github.com/user-attachments/assets/f950ad88-3a43-4f80-8b7b-b1af2b5a1cb3)
+
 
 **MBA Student | Instructor – Dental Office Administration | Healthcare Operations & Client Relationship Expertise**  
 Vancouver, British Columbia, Canada  
